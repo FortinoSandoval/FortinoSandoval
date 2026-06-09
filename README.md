@@ -1,1 +1,1 @@
- Developer focused on building real systems 🧠 💻 🤓
+ Developer focused on building systems 🧠 💻 🤓
